@@ -1,0 +1,1 @@
+Due to patient privacy and institutional regulations, internal clinical FFA images and reports are not publicly available. Upon approval from the ethics committee and collaborating hospitals, de-identified data can be provided to eligible researchers (for non-commercial scientific research purposes only) under the premise of signing a data usage agreement.
